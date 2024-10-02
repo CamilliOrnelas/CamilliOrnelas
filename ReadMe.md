@@ -1,5 +1,5 @@
 # 💫 About Me:
-Olá! meu nome é Camilli.  <br>Eu sou estudante de Sistemas de Informação na Universidade São Judas. <br>Estou em busca de um estágio onde eu possa enfretar desafios e me desenvolver ainda mais como uma profissional.<br>
+Olá! meu nome é Camilli.  <br>Eu sou estudante de Sistemas de Informação na Universidade São Judas. <br>Estou em busca de uma oportunidade onde eu possa enfretar desafios e me desenvolver ainda mais como uma profissional.<br>
 
 
 ## 🌐 Socials:
